@@ -1,9 +1,4 @@
-## Songs
-
-Lyrics to my songs.
-
-
-### Dolorem ipsum
+## Dolorem ipsum
 
 "Neque porro quisquam est  
 Qui dolorem ipsum  
@@ -33,7 +28,7 @@ Cicero sighed
 And took up his quill  
 
 
-### Fuck you McKenzie
+## Fuck you McKenzie
 
 Fuck you McKenzie  
 
@@ -51,7 +46,7 @@ And then you waltzed in here McKenzie
 With your shitty fucking paws  
 
 
-### Moments of glass
+## Moments of glass
 
 I've come to collect  
 Some more moments of glass  
@@ -86,7 +81,7 @@ You don't know who I am
 But you're kind  
 
 
-### People often say
+## People often say
 
 People often say that I  
 Remind them of themselves  
@@ -104,7 +99,7 @@ Oh, park your bags
 And we'll talk it out some more  
 
 
-### West with the sun
+## West with the sun
 
 I'll run away  
 I'll get away  
