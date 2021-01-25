@@ -15,7 +15,7 @@ I mopped the fucking floor
 And then you waltzed in here McKenzie  
 With your shitty fucking paws  
 
-I live in a town just a pub and a shop  
+I live in a town just a pub and servo  
 A Rockatansky place  
 There's precious little going on  
 Occupying a fuckload of space  
@@ -37,7 +37,7 @@ You have fucked me over again
 I made my peace  
 Through gritted teeth  
 I shut and locked the gate  
-And then you sauntered past McKenzie  
+And then you sauntered in McKenzie  
 Like you thought that we were mates  
 
 Fuck you  
@@ -54,12 +54,11 @@ If you would be so kind
 
 It's in-fucking-credible  
 How in-fucking-edible  
-A meat pie becomes  
-In the oven all day  
+A meat pie gets in the oven all day  
 
 You flaming galah  
-(just joking, yeah nah  
-That isn't something that I really say)  
+(Just joking, yeah nah  
+That isn't something that we really say)  
 
 Fuck you McKenzie  
 
