@@ -2,7 +2,7 @@
 
 People often say that I  
 Remind them of themselves  
-I can't help but think that that's
+I can't help but think that that's  
 Bad for my mental health  
 
 I don't respect my boundaries  
