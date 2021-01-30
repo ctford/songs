@@ -6,6 +6,9 @@ Quia dolor sit amet
 Consectetur  
 Adipisci velit_  
 
+(Liberal translation from the Latin:  
+No one wants pain for pain's sake)  
+
 Cicero opined  
 And laid down his quill  
 
