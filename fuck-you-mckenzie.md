@@ -15,8 +15,8 @@ I mopped the fucking floor
 And then you waltzed in here McKenzie  
 With your shitty fucking paws  
 
-I live in a town just a pub and servo  
-A Rockatansky place  
+I live in a town just a servo and a pub  
+A real Rockatansky place  
 There's precious little going on  
 Occupying a fuckload of space  
 
@@ -76,6 +76,6 @@ And don't thank me McKenzie
 Right, well I'm off home  
 
 You're the cat with the cream  
-Yet you piss on my sorrow  
+Yet you shit on my sorrow  
 Fuck you McKenzie  
 And see you tomorrow  
