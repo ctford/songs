@@ -17,7 +17,7 @@ For its own sake
 It's just a mark  
 To hold my place  
 A starting point  
-A piece of space  
+A chunk of space  
 Where good and evil  
 Can take place  
 
