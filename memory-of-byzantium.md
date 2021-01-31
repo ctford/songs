@@ -31,4 +31,5 @@ Of Theodosian walls
 And the careless clap of canon balls  
 
 
-(The quote about the Golden Horn is from G. K. Chesterton's poem 'Lepanto'.)
+(The quote about the Golden Horn is from
+G. K. Chesterton's poem ['Lepanto'](https://www.poetryfoundation.org/poems/47917/lepanto).)
