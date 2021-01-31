@@ -6,5 +6,6 @@
 - [Dolorem ipsum](dolorem-ipsum.md) (F lydian)
 - [Love and fear](https://www.leunig.com.au/works/prayers) by Michael Leunig (G minor)
 - [Memory of Byzantium](memory-of-byzantium.md) (E double harmonic major / A♭ major)
+- [I'm not worried](im-not-worried.md)
 - [People often say](people-often-say.md) (E♭ major)
 - [West with the sun](west-with-the-sun.md) (A minor)
