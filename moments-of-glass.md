@@ -3,6 +3,7 @@
 I've come to collect  
 Some more moments of glass  
 Specks of grandmotherly time  
+
 I've come to collect  
 Some more moments of glass  
 They're harder and harder to find  
@@ -18,6 +19,7 @@ But light and life and love refract away
 I've come to collect  
 Some more moments of glass  
 They're harder and harder to find  
+
 I've come to collect  
 Some more moments of glass  
 It seems they're in short supply  
@@ -33,6 +35,7 @@ A laugh, "Get used to doing for yourself"
 I've come to collect  
 Some more moments of glass  
 They're harder and harder to find  
+
 I've come to collect  
 Some more moments of glass  
 You don't know who I am  
