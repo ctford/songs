@@ -6,9 +6,6 @@ Quia dolor sit amet
 Consectetur  
 Adipisci velit_  
 
-(Liberal translation from the Latin:  
-No one wants pain for pain's sake)  
-
 Cicero opined  
 And laid down his quill  
 
@@ -29,3 +26,7 @@ Adipisci velit_
 
 Cicero sighed  
 And took up his quill  
+
+
+(The Latin roughly translates as "No one seeks pain for pain's sake"
+and is from Marcus Tullius Cicero's _De finibus bonorum et malorum_ or "On the ends of good and evil".)
