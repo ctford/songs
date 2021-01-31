@@ -29,4 +29,5 @@ And took up his quill
 
 
 (The Latin roughly translates as "No one seeks pain for pain's sake"
-and is from Marcus Tullius Cicero's _De finibus bonorum et malorum_ or "On the ends of good and evil".)
+and is from Marcus Tullius Cicero's [_De finibus bonorum et malorum_](https://books.google.com/books?id=C0ZuoEMeeeAC&dq)
+or "On the ends of good and evil".)
