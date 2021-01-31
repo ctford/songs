@@ -4,7 +4,7 @@ I've come to collect
 Some more moments of glass  
 They're harder and harder to find  
 
-It's not that the light is getting dim  
+It's not the light that's getting dim  
 There's just a spiderweb of fissures in  
 The medium that sits 'tween you and me  
 
@@ -17,14 +17,14 @@ I've come to collect
 Some more moments of glass  
 It seems they're in short supply  
 
-Your eyes are bright your face is warn  
+Your eyes bright your face is warn  
 Your accent floating somewhere on  
-The boat you slipped aboard  
+The ship you slipped aboard  
 For just ten pounds  
 
-When you disembarked mother enquired  
+When you arrived mother enquired  
 About a maid to "do for her"  
-A laugh, "Best get used to  
+A laugh, "Get used to  
 Doing for yourself"  
 
 I've come to collect  
