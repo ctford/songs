@@ -29,3 +29,6 @@ For the memory of Byzantium
 For things we miss but never had  
 Of Theodosian walls  
 And the careless clap of canon balls  
+
+
+(The quote about the Golden Horn is from G. K. Chesterton's poem 'Lepanto'.)
