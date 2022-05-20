@@ -12,3 +12,4 @@
 - [Like Ed Sheeran](like-ed-sheeran.md) (D minor / G major)
 - [Pineapple on pizza](pineapple-on-pizza.md) (B locrian)
 - [Affogato](affogato.md) (A major)
+- [Your name](your-name.md) (C major)
