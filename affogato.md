@@ -52,7 +52,7 @@ I know there are fashions
 On how to serve your addictions  
 But nothing's cool as ice  
 On the roof of my mouth  
-I hold it as long as I can  
+Just like you showed me to do  
 
 It's far too hot now  
 To head into town  
