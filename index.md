@@ -11,3 +11,4 @@
 - [West with the sun](west-with-the-sun.md) (A minor)
 - [Like Ed Sheeran](like-ed-sheeran.md) (D minor / G major)
 - [Pineapple on pizza](pineapple-on-pizza.md) (B locrian)
+- [Affogato](affogato.md) (A major)
