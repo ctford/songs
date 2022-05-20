@@ -25,7 +25,7 @@ But I'll always miss
 That caffeine surprise  
 That vanilla kiss  
 I wonder if you  
-Would remember them  
+Would remember too  
 If only  
 You had made it  
 
