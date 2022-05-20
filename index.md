@@ -10,3 +10,4 @@
 - [People often say](people-often-say.md) (E♭ major)
 - [West with the sun](west-with-the-sun.md) (A minor)
 - [Like Ed Sheeran](like-ed-sheeran.md) (D minor / G major)
+- [Pineapple on pizza](pineapple-on-pizza.md) (B locrian)
