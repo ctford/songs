@@ -14,3 +14,4 @@
 - [Affogato](affogato.md) (A major)
 - [Your name](your-name.md) (C major)
 - [Winter Water](winter-water.md) (F major)
+- [Leave your mic on](leave-your-mic-on.md) (E♭ major)
