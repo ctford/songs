@@ -13,5 +13,5 @@
 - [Pineapple on pizza](pineapple-on-pizza.md) (B locrian)
 - [Affogato](affogato.md) (A major)
 - [Your name](your-name.md) (C major)
-- [Winter Water](winter-water.md) (F major)
+- [Winter water](winter-water.md) (F major)
 - [Leave your mic on](leave-your-mic-on.md) (E♭ major)
