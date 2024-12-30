@@ -56,5 +56,4 @@ Oh leave your mic on
 Leave your mic on, honey  
 I want to hear from you  
 I believe some stupid shit  
-For stupid reasons too  
-I want to hear from you  
+And I believe in you  
