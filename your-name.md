@@ -22,6 +22,11 @@ You introduced yourself
 I don't know what I said in return  
 But I must have said it well  
 
+I heard your name  
+I said it down the phone  
+Then heard it again when your mother lied  
+And said that you weren't home  
+
 I hear your name  
 Everywhere I go  
 In overheard conversations  
