@@ -39,18 +39,21 @@ But particularly missile defense
 This can be solved  
 But it's important for him  
 To give me space"  
+(Barack Obama)  
 
 "Does anyone ever say  
 You've done a fucking good job  
 Because everyone else  
 Has sat on their fucking arse  
 And done nothing?"  
+(Gillian Keegan)  
 
 "That was a disaster  
 Should never have put me with that woman  
 Whose idea was that?  
 She was just a sort of bigoted woman  
 Who said she used to be Labour"  
+(Gordon Brown)  
 
 Oh leave your mic on  
 Leave your mic on, honey  
