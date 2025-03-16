@@ -27,11 +27,11 @@ To live in a box
 
 That's stacked
 Above and below
-My theoretical neighbours
+With abstract neighbours
 How can this be right?
 
 Fucked-up tomato
-Fucked-up tomato
+Dearest tomato
 
 Your strength is mine
 Your fragile sweetness
